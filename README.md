@@ -1,4 +1,4 @@
-### Hello there ### 🌛
+### Hello there  🌛
 
 
 - 👋 Hi, I’m @maconmagno, I am a PhD Physics student at Southern Methodist University in Dallas, Texas. 
